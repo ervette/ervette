@@ -1,1 +1,1 @@
-# kiriltalalayko-gmail.com
+# kiriltalalayko@gmail.com
